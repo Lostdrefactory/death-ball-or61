@@ -1,4 +1,4 @@
-#  
+#  death ball Scripts secure is the best death ball Script, featuring auto-sell and auto-collect. Safe and powerful for all your needs.
 
 
 
